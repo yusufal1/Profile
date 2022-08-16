@@ -1,4 +1,4 @@
-<img src="https://media4.giphy.com/media/MGdfeiKtEiEPS/giphy.gif?cid=ecf05e47k3a2app2njgd445gubqdamre7vq3pdgry7flhpid&rid=giphy.gif&ct=g" align="right" width="400" height="250">
+
 
 ### Hi there, I'm Yusuf. :hand:
 
